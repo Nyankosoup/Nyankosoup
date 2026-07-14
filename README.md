@@ -4,4 +4,4 @@
 .
  i am usually offtab so, pls whisper o im prob doomscrolling, making arts ♡ , im VERY shy towards other .
 
-[![Alt Text](image_url)]([https://i.pinimg.com/736x/77/52/79/77527985851896e2391feec2b4eddbe9.jpg])
+![description](https://user-images.githubusercontent.com/(https://i.pinimg.com/736x/77/52/79/77527985851896e2391feec2b4eddbe9.jpg).png)
