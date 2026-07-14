@@ -1,5 +1,5 @@
 ## 
 
- [な]ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  haii ! im Axel aka Soup , i go by They/any (i prefer they/them o he/him but mehh its whatever), im socially awkward/anxious so DO NOT expect me to be enthusiast, much. i take times on replying to your messages cuz im a bit of THAT careful person
- i am usually offtab so, pls whisper o im prob doomscrolling, making arts ♡ , im VERY shy towards other 
-!https://i.pinimg.com/736x/77/52/79/77527985851896e2391feec2b4eddbe9.jpg
+ ♡ , VERY shy towards other
+
+<img width="735" height="482" alt="IMG_3648" src="https://github.com/user-attachments/assets/4a37e2f3-2d20-4407-8868-30400a0d8100" />
