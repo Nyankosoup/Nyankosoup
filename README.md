@@ -1,5 +1,5 @@
 ## 
-
+<p align="center">
 ᨳ。𓏼ㅤ α᥊𝕖𝕝゜ㅤ ⑅𓐇
 _                  _ㅤ   `𝗷ust ᑲunny` ㅤ  ྀིᧆ ㅤ 
 <p align="center">
