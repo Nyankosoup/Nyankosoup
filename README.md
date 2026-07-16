@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=nyankosoup&color=FFD1F1&label=curiousbunny&style=flat-square)
 ## 
 <p align="center">
 ᨳ。𓏼ㅤ α᥊𝕖𝕝゜ㅤ ⑅𓐇
