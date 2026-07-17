@@ -10,6 +10,7 @@ _                  _ㅤ   `𝗷ust ᑲunny` ㅤ  ྀིᧆ ㅤ
 <p align="center">
       ᧔͜| ͜͝ 𓏼  ͜𓐇 ͒
            ͜͝ 𓐇۪ 𖡻<img width="20" height="20" alt="IMG_3740" src="https://github.com/user-attachments/assets/20831626-d6b2-47df-addb-97c1ee05779b" />
+      <div align="center">
       <details>
   <summary style="text-align: center;"><ins>𝗌𝗍𝖺𝗆𝗉𝗌!</ins></summary>
   <div align="center">
