@@ -7,8 +7,6 @@
 _                  _ㅤ   `𝗷ust ᑲunny` ㅤ  ྀིᧆ ㅤ 
 <p align="center">
 <img width="435" height="282" alt="IMG_3648" src="https://github.com/user-attachments/assets/4a37e2f3-2d20-4407-8868-30400a0d8100" />
- <p align="center">
-THIS image. is frie- NOT FRIENDLY NOT FRIENDLY.
 <p align="center">
       ᧔͜| ͜͝ 𓏼  ͜𓐇 ͒
            ͜͝ 𓐇۪ 𖡻<img width="20" height="20" alt="IMG_3740" src="https://github.com/user-attachments/assets/20831626-d6b2-47df-addb-97c1ee05779b" />
