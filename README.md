@@ -21,4 +21,4 @@ _                  _ㅤ   `𝗷ust ᑲunny` ㅤ  ྀིᧆ ㅤ
 𝗋𝖾𝖺𝖽 𝗆𝗈𝗋𝖾 𝗂𝗇 "𝖻𝗎𝗇𝖼𝖺𝗄𝗌"! <img width="20" height="20" alt="IMG_3775" src="https://github.com/user-attachments/assets/d9d2938c-4108-4b8e-96d7-4f1b6a2071ce" />
 <h5 align="center">
 
-![](https://komarev.com/ghpvc/?username=nyankosoup&color=FFD1F1&label=littlesoups&style=flat-square)
+![](https://komarev.com/ghpvc/?username=nyankosoup&color=FFD1F1&label=WHOAREYOUIMSCARED&style=flat-square)
