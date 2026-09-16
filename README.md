@@ -21,7 +21,7 @@ _                  _ㅤ   `𝗷ust ᑲunny` ㅤ  ྀིᧆ ㅤ
 𝗋𝖾𝖺𝖽 𝗆𝗈𝗋𝖾 𝗂𝗇 "𝖻𝗎𝗇𝖼𝖺𝗄𝗌"! <img width="20" height="20" alt="IMG_3775" src="https://github.com/user-attachments/assets/d9d2938c-4108-4b8e-96d7-4f1b6a2071ce" />
 <h5 align="center">
 
-![](https://komarev.com/ghpvc/?username=nyankosoup&color=FFD1F1&label=themephones4lings&style=flat-square)
+![](https://komarev.com/ghpvc/?username=nyankosoup&color=FFD1F1&label=guywhojustvisitprofiles&style=flat-square)
 
 <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Great+Vibes&duration=7000&pause=450&color=ffe7ff&center=true&width=790&lines=%22+Somewhere+between%27t+cotton+candy+skies+pastel+dreams.+Axel+stepped+onto+the+island+and+grew+the+softest+wings.+%22;%22+Meant,+to+stay.+I%27ll+only+as+long+as++their+sweet+little+heart+remained+there+.+%22" />
