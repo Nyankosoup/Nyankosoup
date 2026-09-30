@@ -2,7 +2,8 @@
 remaking this! please be patient!
 
 <p align="center">
-<img width="99" height="54" alt="IMG_7677" src="https://github.com/user-attachments/assets/7fc27f9c-1b13-445b-a9ae-07393256dfc9" />
+<img width="77" height="46" alt="IMG_7680" src="https://github.com/user-attachments/assets/204f3876-a2bc-4636-820d-0d23213bc7c5" />
+
 
 <p align="center">
 <img width="435" height="282" alt="IMG_3648" src="https://github.com/user-attachments/assets/4a37e2f3-2d20-4407-8868-30400a0d8100" />
