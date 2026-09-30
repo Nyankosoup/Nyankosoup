@@ -3,7 +3,15 @@ remaking this! please be patient!
 
 <p align="center">
 <img width="435" height="282" alt="IMG_3648" src="https://github.com/user-attachments/assets/4a37e2f3-2d20-4407-8868-30400a0d8100" />
+
 <p align="center">
+ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`𝗷ust ᑲunny`&ensp;&ensp;&ensp; ྀིᧆ 
+
+<p align="center">
+<td>
+${\textsf{\color{#FFE7F9}𓏼   Bᥙᥒᥒy   }}$ ㅤㅤ ${\textsf{\color{#F6E0FF} B᥆y }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥲ᥉ ᥉᥆ft }}$ ㅤㅤ ${\textsf{\color{#F6E0FF}  ᥲ᥉ }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥴ᥆tt᥆ᥒ ᥴᥲᥒdy }}$ ㅤ ${\textsf{\color{#F6E0FF} ᥴᥣ᥆ᥙd }}$
+<br>
+
 
 <p align="center">
 info in buncaks !
