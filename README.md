@@ -20,3 +20,4 @@ ${\textsf{\color{#FFE7F9}𓏼   Bᥙᥒᥒy   }}$ ㅤㅤ ${\textsf{\color{#F6E0F
 info in buncaks !
 
 
+![](https://komarev.com/ghpvc/?username=Nyankosoup&label=bunny%20&base=100&color=FFD1F1&style=flat)
