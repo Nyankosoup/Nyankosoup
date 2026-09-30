@@ -12,7 +12,7 @@ remaking this! please be patient!
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
 <p align="center">
 <td>
-${\textsf{\color{#FFE7F9}𓏼   Bᥙᥒᥒy   }}$ ㅤㅤ ${\textsf{\color{#F6E0FF} B᥆y }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥲ᥉ ᥉᥆ft }}$ ㅤㅤ ${\textsf{\color{#F6E0FF}  ᥲ᥉ }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥴ᥆tt᥆ᥒ ᥴᥲᥒdy }}$ ㅤ ${\textsf{\color{#F6E0FF} ᥴᥣ᥆ᥙd }}$
+${\textsf{\color{#FFE7F9}𓏼   Bᥙᥒᥒy   }}$ ㅤㅤ ${\textsf{\color{#F6E0FF} B᥆y }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥲ᥉ ᥉᥆ft }}$ ㅤㅤ ${\textsf{\color{#F6E0FF}  ᥲ᥉ ᥲ }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥴ᥆tt᥆ᥒ ᥴᥲᥒdy }}$ ㅤ ${\textsf{\color{#F6E0FF} ᥴᥣ᥆ᥙd }}$
 <br>
 
 
