@@ -1,9 +1,8 @@
 <p align="center">
-remaking this! please be patient!
+<img width="390" height="50" alt="Untitled124_20261001141600" src="https://github.com/user-attachments/assets/c0829219-c686-40c3-ab07-76c3ffa65270" />
 
 <p align="center">
-<img width="77" height="46" alt="IMG_7677" src="https://github.com/user-attachments/assets/7fc27f9c-1b13-445b-a9ae-07393256dfc9" />
-
+remaking this! please be patient!
 
 <p align="center">
 <img width="435" height="282" alt="IMG_3648" src="https://github.com/user-attachments/assets/4a37e2f3-2d20-4407-8868-30400a0d8100" />
@@ -18,6 +17,9 @@ ${\textsf{\color{#FFE7F9}𓏼   Bᥙᥒᥒy   }}$ ㅤㅤ ${\textsf{\color{#F6E0F
 
 <p align="center">
 info in buncaks !
+
+<p align="center">
+<img width="77" height="46" alt="IMG_7677" src="https://github.com/user-attachments/assets/7fc27f9c-1b13-445b-a9ae-07393256dfc9" />
 
 
 ![](https://komarev.com/ghpvc/?username=Nyankosoup&label=bunny%20&base=100&color=FFD1F1&style=flat)
