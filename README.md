@@ -5,7 +5,8 @@
 remaking this! please be patient!
 
 <p align="center">
-<img width="435" height="282" alt="IMG_3648" src="https://github.com/user-attachments/assets/4a37e2f3-2d20-4407-8868-30400a0d8100" />
+<img width="445" height="284" alt="Untitled125_20261001142653" src="https://github.com/user-attachments/assets/762d0af7-4a02-4c93-8efe-37bb9c1a8fa2" />
+
 
 <p align="center">
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
