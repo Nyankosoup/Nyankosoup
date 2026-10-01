@@ -5,7 +5,8 @@
 remaking this! please be patient!
 
 <p align="center">
-<img width="445" height="284" alt="Untitled125_20261001142653" src="https://github.com/user-attachments/assets/762d0af7-4a02-4c93-8efe-37bb9c1a8fa2" />
+<img width="445" height="284" alt="Untitled125_20261001143026" src="https://github.com/user-attachments/assets/3290539a-353f-4fc2-b7cf-fce56c58d153" />
+
 
 
 <p align="center">
