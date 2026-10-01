@@ -18,7 +18,7 @@ ${\textsf{\color{#FFE7F9}𓏼   Bᥙᥒᥒy   }}$ ㅤㅤ ${\textsf{\color{#F6E0F
 
 
 <p align="center">
-info in buncaks !
+info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.catbox.moe/gacbu8.gif" />
 
 <p align="center">
 <img width="77" height="46" alt="IMG_7677" src="https://github.com/user-attachments/assets/7fc27f9c-1b13-445b-a9ae-07393256dfc9" />
