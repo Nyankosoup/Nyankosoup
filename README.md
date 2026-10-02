@@ -13,7 +13,7 @@ remaking this! please be patient!
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
 <p align="center">
 <td>
-${\textsf{\color{#FFE7F9}𓏼   Bᥙᥒᥒy   }}$ ㅤㅤ ${\textsf{\color{#F6E0FF} B᥆y }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥲ᥉ ᥉᥆ft }}$ ㅤㅤ ${\textsf{\color{#F6E0FF}  ᥲ᥉ ᥲ }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥴ᥆tt᥆ᥒ ᥴᥲᥒdy }}$ ㅤ ${\textsf{\color{#F6E0FF} ᥴᥣ᥆ᥙd }}$
+${\textsf{\color{#FFE7F9}𓏼   Frᥲᥒk᥉'   }}$ ㅤㅤ ${\textsf{\color{#F6E0FF} ρr᥆bᥲbᥣy }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥒᥙ꧑bᥱr᥉ }}$ ㅤㅤ ${\textsf{\color{#F6E0FF}  ᥆ᥒᥱ }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} Bᥙᥒᥒy b᥆y }}$ ㅤ ${\textsf{\color{#F6E0FF} :3 }}$
 <br>
 
 
