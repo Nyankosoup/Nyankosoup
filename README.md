@@ -22,6 +22,5 @@ info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.
 
 <p align="center">
 <img width="77" height="46" alt="IMG_7677" src="https://github.com/user-attachments/assets/7fc27f9c-1b13-445b-a9ae-07393256dfc9" />
-
-
-![](https://komarev.com/ghpvc/?username=Nyankosoup&label=getoutbro%20&base=100&color=FFD1F1&style=flat)
+  
+![](https://komarev.com/ghpvc/?username=Nyankosoup&label=Trespassers%20&base=100&color=FFD1F1&style=flat)
