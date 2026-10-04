@@ -1,6 +1,8 @@
 <p align="center">
 <img width="390" height="50" alt="Untitled124_20261001141600" src="https://github.com/user-attachments/assets/c0829219-c686-40c3-ab07-76c3ffa65270" />
 
+![](https://komarev.com/ghpvc/username=Nyankosoup&label=Trespassers%20&base=100&color=FFD1F1&style=flat)
+
 <p align="center">
 remaking this! please be patient!
 
@@ -22,5 +24,3 @@ info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.
 
 <p align="center">
 <img width="77" height="46" alt="IMG_7677" src="https://github.com/user-attachments/assets/7fc27f9c-1b13-445b-a9ae-07393256dfc9" />
-  
-![](https://komarev.com/ghpvc/?username=Nyankosoup&label=Trespassers%20&base=100&color=FFD1F1&style=flat)
