@@ -10,7 +10,7 @@ remaking this! please be patient! jumps.
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
 <p align="center">
 <td>
-${\textsf{\color{#FFE7F9}𓏼   Frᥲᥒk'᥉   }}$ ㅤㅤ ${\textsf{\color{#F6E0FF} ρr᥆bᥲbᥣy }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} ᥒᥙ꧑bᥱr }}$ ㅤㅤ ${\textsf{\color{#F6E0FF}  ᥆ᥒᥱ }}$ ㅤㅤ ${\textsf{\color{#FFE7F9} Bᥙᥒᥒy b᥆y }}$ ㅤ ${\textsf{\color{#F6E0FF} :3 }}$
+${\textsf{\color{#785BA6}𓏼   Frᥲᥒk'᥉   }}$ ㅤㅤ ${\textsf{\color{#46245F} ρr᥆bᥲbᥣy }}$ ㅤㅤ ${\textsf{\color{#260331} ᥒᥙ꧑bᥱr }}$ ㅤㅤ ${\textsf{\color{#46245F}  ᥆ᥒᥱ }}$ ㅤㅤ ${\textsf{\color{#785BA6} Bᥙᥒᥒy b᥆y }}$ ㅤ ${\textsf{\color{#46245F} :3 }}$
 <br>
 
 
