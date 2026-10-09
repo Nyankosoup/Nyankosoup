@@ -7,7 +7,7 @@ remaking this! please be patient! jumps.
 $\color{46245F}\text{"　　The btch was strong, the kids was gone　   "}$
 
 <p align="center">
-<img width="456" height="456" alt="Untitled137_20261009201223" src="https://github.com/user-attachments/assets/952b4b84-bcb5-40c5-a561-60d39478ce67" />
+<img width="456" height="448" alt="Untitled137_20261009201223" src="https://github.com/user-attachments/assets/952b4b84-bcb5-40c5-a561-60d39478ce67" />
 
 <p align="center">
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
