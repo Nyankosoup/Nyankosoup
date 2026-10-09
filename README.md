@@ -4,7 +4,7 @@
 remaking this! please be patient! jumps.
 
 <p align="center">
-$\color{46245F}\text{"   The btch was strong, the kids was gone   "}$
+$\color{46245F}\text{"　　The btch was strong, the kids was gone　   "}$
 
 <p align="center">
 <img width="456" height="456" alt="Untitled137_20261009201223" src="https://github.com/user-attachments/assets/952b4b84-bcb5-40c5-a561-60d39478ce67" />
