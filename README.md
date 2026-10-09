@@ -1,13 +1,10 @@
-<p align="center">
-<img width="390" height="50" alt="Untitled124_20261001141600" src="https://github.com/user-attachments/assets/c0829219-c686-40c3-ab07-76c3ffa65270" />
 
-<p align="center">
-remaking this! please be patient!
 
 <p align="center">
-<img width="445" height="284" alt="Untitled125_20261001143026" src="https://github.com/user-attachments/assets/3290539a-353f-4fc2-b7cf-fce56c58d153" />
+remaking this! please be patient! jumps.
 
-
+<p align="center">
+<img width="456" height="456" alt="Untitled137_20261009201223" src="https://github.com/user-attachments/assets/952b4b84-bcb5-40c5-a561-60d39478ce67" />
 
 <p align="center">
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
