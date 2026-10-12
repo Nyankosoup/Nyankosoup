@@ -13,7 +13,7 @@ $\color{46245F}\text{"　　The btch was strong, the kids was gone　   "}$
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
 <p align="center">
 <td>
-${\textsf{\color{#785BA6}𓏼   Frᥲᥒk'᥉   }}$ uㅤㅤ ${\textsf{\color{#46245F} ρr᥆bᥲbᥣy }}$ ㅤㅤ ${\textsf{\color{#260331} ᥒᥙ꧑bᥱr }}$ ㅤㅤ ${\textsf{\color{#46245F}  ᥆ᥒᥱ }}$ ㅤㅤ ${\textsf{\color{#785BA6} Bᥙᥒᥒy b᥆y }}$ ㅤ ${\textsf{\color{#46245F} :3 }}$
+${\textsf{\color{#785BA6}𓏼   Frᥲᥒk'᥉   }}$ ㅤㅤ ${\textsf{\color{#46245F} ρr᥆bᥲbᥣy }}$ ㅤㅤ ${\textsf{\color{#260331} ᥒᥙ꧑bᥱr }}$ ㅤㅤ ${\textsf{\color{#46245F}  ᥆ᥒᥱ }}$ ㅤㅤ ${\textsf{\color{#785BA6} Bᥙᥒᥒy b᥆y }}$ ㅤ ${\textsf{\color{#46245F} :3 }}$
 <br>
 
 
