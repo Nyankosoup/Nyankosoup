@@ -25,6 +25,6 @@ info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.
 <details>
 <summary>⠀ ⠀ ₍ᐢ.ˬ.ᐢ₎⠀⠀ ⠀bleh  ⠀</summary> 
 
-getout bro its not done. yet.
+getout bro its not done. yet. anywho. if you see me as "i sign people straw" and IM STARING atyou that mean i was **probably** signing your straw or stuff but staring doesn't always mean i was signing your straw ok...? ok.
 <div align="center">
 
