@@ -13,7 +13,7 @@ $\color{46245F}\text{"　　The btch was strong, the kids was gone　   "}$
 ᨳ。𓏼&ensp;&ensp;α᥊𝕖𝕝&ensp;&ensp;&ensp;`<sup><code>𝗷ust ᑲunny</code></sup>`&ensp;&ensp;&ensp; ྀིᧆ 
 <p align="center">
 <td>
-${\textsf{\color{#785BA6}𓏼   Frᥲᥒk'᥉   }}$ ㅤㅤ ${\textsf{\color{#46245F} ρr᥆bᥲbᥣy }}$ ㅤㅤ ${\textsf{\color{#260331} ᥒᥙ꧑bᥱr }}$ ㅤㅤ ${\textsf{\color{#46245F}  ᥆ᥒᥱ }}$ ㅤㅤ ${\textsf{\color{#785BA6} Bᥙᥒᥒy b᥆y }}$ ㅤ ${\textsf{\color{#46245F} :3 }}$
+${\textsf{\color{#785BA6}𓏼   Frᥲᥒk'᥉   }}$ uㅤㅤ ${\textsf{\color{#46245F} ρr᥆bᥲbᥣy }}$ ㅤㅤ ${\textsf{\color{#260331} ᥒᥙ꧑bᥱr }}$ ㅤㅤ ${\textsf{\color{#46245F}  ᥆ᥒᥱ }}$ ㅤㅤ ${\textsf{\color{#785BA6} Bᥙᥒᥒy b᥆y }}$ ㅤ ${\textsf{\color{#46245F} :3 }}$
 <br>
 
 
@@ -23,8 +23,10 @@ info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.
 ![](https://komarev.com/ghpvc/?username=Nyankosoup&label=Regulardude%20&base=100&color=785BA6&style=flat)
 
 <details>
-<summary>⠀ ⠀ ₍ᐢ.ˬ.ᐢ₎⠀⠀ ⠀bleh  ⠀</summary> 
-
-getout bro its not done. yet. anywho. if you see me as "i sign people straw" and IM STARING atyou that mean i was **probably** signing your straw or stuff but staring doesn't always mean i was signing your straw ok...? ok.
-<div align="center">
+<summary>⠀ ⠀ ₍ᐢ.ˬ.ᐢ₎⠀⠀ ⠀PT  ⠀</summary> 
+sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can also cuddle when Im on 'Iwec', 'iwvec', Iwc' 'Dniuparty/dniuf/dniuc/something else like dni..', its ok just dont DO NOT int if im on my "dnis" stats). and I BITE, always interact with CAUTION/EXTREME caution (especially when im not in the mood. although Im a bit of ambivert I CAN be VERY awkward in social setting—depending on moods (sighhh my social batteries always drop to low if i get A LITTLE TOO QUITE.)
+<p align="left">
+________
+<p align="left">
+Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but staring **doesn’t always** mean I was signing your strawpage. ok.??.?? Okay.
 
