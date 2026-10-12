@@ -24,9 +24,9 @@ info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.
 
 <details>
 <summary>⠀ ⠀ ₍ᐢ.ˬ.ᐢ₎⠀⠀ ⠀PT  ⠀</summary> 
-sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can also cuddle when Im on 'Iwec', 'iwvec', Iwc' 'Dniuparty/dniuf/dniuc/something else like dni..', its ok just dont DO NOT int if im on my "dnis" stats). and I BITE, always interact with CAUTION/EXTREME caution (especially when im not in the mood. although Im a bit of ambivert I CAN be VERY awkward in social setting—depending on moods (sighhh my social batteries always drop to low if i get A LITTLE TOO QUITE.)
+sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can also cuddle when Im on 'Iwec', 'iwvec', Iwc' 'Dniuparty/dniuf/dniuc/something else like dni..', its ok just dont DO NOT int if im on my "dnis" stats). and I <b>BITE</b>, always interact with CAUTION/EXTREME caution (especially when im not in the mood. although Im a bit of ambivert I CAN be VERY awkward in social setting—depending on moods (sighhh my social batteries always drop to low if i get A LITTLE TOO QUITE.)
 <p align="left">
 ________
 <p align="left">
-Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but staring **doesn’t always** mean I was signing your strawpage. ok.??.?? Okay.
+Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but stares <b>doesn't always</b> mean I was signing your strawpage. ok.??.?? Okay.
 
