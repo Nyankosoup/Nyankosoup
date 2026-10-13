@@ -28,5 +28,5 @@ sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can al
 <p align="left">
 ________
 <p align="left">
-Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but stares <b>doesn't always</b> mean I was signing your strawpage. ok.??.?? Okay.
+Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but stares <b>doesn't always</b> mean I was signing your strawpage. ok.??.?? Okay. GIVE ME YOUR STRAW. LIKE. RIGHT HOW. ILL SIGN IT, PLES,please speed i need this. my signingstrawpage instcit is kinda homels,  (20 people..)
 
