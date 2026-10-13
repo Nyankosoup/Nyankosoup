@@ -28,5 +28,9 @@ sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can al
 <p align="left">
 ________
 <p align="left">
+don't sent invite unless i wanted to rp/hangout (for funssies but ill leave tho after the other gine)/freind. im in parties,, do NOT do not. sneeze on me. unless we have interacted be4.. ill probably hide you if you do that
+<p align="left">
+________
+<p align="left">
 Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but stares <b>doesn't always</b> mean I was signing your strawpage. ok.??.?? Okay. GIVE ME YOUR STRAW. LIKE. RIGHT HOW. ILL SIGN IT, PLES,please speed i need this. my signingstrawpage instcit is kinda homels,  (20 people..)
 
