@@ -28,7 +28,7 @@ sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can al
 <p align="left">
 ________
 <p align="left">
-don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do not. sneeze on me, sent fried req unless we have interacted be4
+don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do not. sneeze on me, sent fried req unless we have interacted be4 (Banters), accidental, and uhhm,, uhm. yeah. also. hi.
 <p align="left">
 ________
 <p align="left">
