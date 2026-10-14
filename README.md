@@ -24,11 +24,12 @@ info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.
 
 <details>
 <summary>⠀ ⠀ ₍ᐢ.ˬ.ᐢ₎⠀⠀ ⠀PT  ⠀</summary> 
-sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can also cuddle when Im on 'Iwec', 'iwvec', Iwc' 'Dniuparty/dniuf/dniuc/something else like dni..', its ok just dont DO NOT int if im on my "dnis" stats). and I <b>BITE</b>, always interact with CAUTION/EXTREME caution (especially when im not in the mood. although Im a bit of ambivert I CAN be VERY awkward in social setting—depending on moods (sighhh my social batteries always drop to low if i get A LITTLE TOO QUITE.)
+sometimes/mostly offtb, ch is VERY VERY encouraged (cudcomf).. do it (You can also cuddle when Im on 'Iwec', 'iwvec', Iwc' 'Dniuparty/dniuf/dniuc/something else like dni..', its ok just dont DO NOT int if im on my "dnis" stats). and I <b>BITE</b>, always interact with CAUTION/EXTREME caution (especially when im not in the mood. no no ya dek)
 <p align="left">
 ________
 <p align="left">
-don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do not. sneeze on me, sent fried req unless we have interacted be4 (Banters), accidental, and uhhm,, uhm. yeah. also. hi.
+don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do not. sneeze on me, sent fried req unless we have interacted be4 (Banters), accidental, and uhhm,, uhm. yeah. also. hi. <b>semi-verbal</b>, I’m a bit of an ambivert, but I can definitely be super awkward in social settings, depending on my mood. I might seem okay at first, but if I get a little too quiet, my social battery starts draining really fast. Sighhh… then I just end up standing there, overthinking everything and wishing I could go home!!! ok.
+
 <p align="left">
 ________
 <p align="left">
