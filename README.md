@@ -24,7 +24,7 @@ info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.
 
 <details>
       <summary> ${\textsf{\color{#785BA6} pony town}}$ </summary>
-I’m sometimes/mostly offtab, but cuddles are VERY, VERY <b>encouraged</b> (comfort cuddles!!). Go ahead!! You can still cuddle me when I’m on “IWEC,” “IWVEC,” “IWC,”,  “DNIUParty/DNIUF/DNIUC,” or anything similar to DNI. it’s okay . Just DO NOT interact if I’m on one of my “DNIs” statuses. Alsouhhhhh., I <b>BITE</b>. interact with caution/EXTREME caution, especially when I’m not in the mood. No no ya dek. uh whatever just dont be weird. dont h*mp me strangers
+I’m sometimes/mostly offtab, but cuddles are VERY, VERY <b>encouraged</b> (comfort cuddles!!). Go ahead!! You can still cuddle me when I’m on “IWEC,” “IWVEC,” “IWC,”,  “DNIUParty/DNIUF/DNIUC,” or anything similar to DNI. it’s okay . Just DO NOT interact if I’m on one of my “DNIs” statuses. Alsouhhhhh., I <b>BITE</b>. interact with caution/EXTREME caution, especially when I’m not in the mood. No no ya dek. uh whatever just dont be weird. uhm. dont h*mp me strangeri will hide you :/
 <p align="left">
 ________
 <p align="left">
