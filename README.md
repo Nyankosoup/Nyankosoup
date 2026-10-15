@@ -36,5 +36,5 @@ Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” po
 <p align="left">
 ________
 <p align="left">
-i keep my ponies simple 😂😂😂because. 😂😂😂😂😂imlazy. im a
+im usually spotted under bakery, the pumpkin patch/farm (spooky month area), docks and library. im just everywhere whateverbro
 
