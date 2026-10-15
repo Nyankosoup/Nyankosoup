@@ -33,5 +33,8 @@ don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do no
 ________
 <p align="left">
 Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but stares <b>doesn't always</b> mean I was signing your strawpage. ok.??.?? Okay. GIVE ME YOUR STRAW. LIKE. RIGHT HOW. ILL SIGN IT, PLES,please speed i need this. my signingstrawpage instcit is kinda homels,  (20 people..) im a burgable. <img width="20" height="20" alt="IMG_8503" src="https://github.com/user-attachments/assets/f1ef9d97-8dcf-46c4-97be-79c08b1b1b2e" />
-
+<p align="left">
+________
+<p align="left">
+i keep my ponies simple 😂😂😂because. 😂😂😂😂😂imlazy. im a
 
