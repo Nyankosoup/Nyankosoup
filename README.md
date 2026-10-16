@@ -38,5 +38,14 @@ ________
 <p align="left">
 im usually spotted under bakery, the pumpkin patch/farm (spooky month area), docks and library. im just everywhere whateverbro bbbabababaa blablabakab
 aaban<img width="567" height="567" alt="IMG_9126" src="https://github.com/user-attachments/assets/2de48486-0934-4ca8-a9c1-6f2b1b14d3a4" />
+</details>
+
+<details>
+      <summary> ${\textsf{\color{#46245F} short info, etc}}$ </summary>
+<p align="left">
+short: Axel o Bunny , Asexual Femboy (do not s3xualize me or anyting bad like that please im uncomfortable with it) , Neoprns (bun (bunny pronouns)/they/he) , 
+________
+<p align="left">
+byi: i’m short-tempered, but it depends on my mood. idfk, just be really careful with it if you interact with me. i’ll casually warn you if you irritate me and that’s okay! keep yapping. i have poor social skills, but i’ll try to interact with you. i’m sensitive ash, a people-pleaser. and i have BPD so i struggle with maintaining relationships, emotional instability, and stuff like that. im blunt abt anything else i avoid conflict.
 
 
