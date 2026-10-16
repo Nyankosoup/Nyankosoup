@@ -43,7 +43,7 @@ aaban<img width="567" height="567" alt="IMG_9126" src="https://github.com/user-a
 <details>
       <summary> ${\textsf{\color{#46245F} "short" info, etc}}$ </summary>
 <p align="left">
-short: Axel o Bunny , Asexual Femboy (do not s3xualize me or anyting bad like that please im uncomfortable with it) , Neoprns (bun (bunny pronouns)/they/he) , 
+short: Axel o Bunny , Asexual Femboy (do not s3xualize me or anyting bad like that please im uncomfortable with it) , Neoprns (bun (bunny pronouns)/they/he) , eng-indonesian im currently learning Japanese bear with me hi
 <p align="left">
 ________
 <p align="left">
