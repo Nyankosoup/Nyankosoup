@@ -36,5 +36,7 @@ Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” po
 <p align="left">
 ________
 <p align="left">
-im usually spotted under bakery, the pumpkin patch/farm (spooky month area), docks and library. im just everywhere whateverbro
+im usually spotted under bakery, the pumpkin patch/farm (spooky month area), docks and library. im just everywhere whateverbro bbbabababaa blablabakab
+aaban<img width="567" height="567" alt="IMG_9126" src="https://github.com/user-attachments/assets/2de48486-0934-4ca8-a9c1-6f2b1b14d3a4" />
+
 
