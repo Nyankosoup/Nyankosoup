@@ -41,11 +41,20 @@ aaban<img width="567" height="567" alt="IMG_9126" src="https://github.com/user-a
 </details>
 
 <details>
-      <summary> ${\textsf{\color{#46245F} short info, etc}}$ </summary>
+      <summary> ${\textsf{\color{#46245F} "short" info, etc}}$ </summary>
 <p align="left">
 short: Axel o Bunny , Asexual Femboy (do not s3xualize me or anyting bad like that please im uncomfortable with it) , Neoprns (bun (bunny pronouns)/they/he) , 
+<p align="left">
 ________
 <p align="left">
-byi: i’m short-tempered, but it depends on my mood. idfk, just be really careful with it if you interact with me. i’ll casually warn you if you irritate me and that’s okay! keep yapping. i have poor social skills, but i’ll try to interact with you. i’m sensitive ash, a people-pleaser. and i have BPD so i struggle with maintaining relationships, emotional instability, and stuff like that. im blunt abt anything else i avoid conflict.
-
-
+byi: i’m short-tempered, but it depends on my mood. idfk, just be really careful with it if you interact with me. i’ll casually warn you if you irritate me and that’s okay! keep yapping. i have poor social skills, but i’ll try to interact with you. i’m sensitive ash, a people-pleaser. and i have BPD so i struggle with maintaining relationships, emotional instability, and stuff like that. im blunt abt anything else i avoid conflict. i get jealous easily. just,  my. my. ego. ca. cant. h. handle. i. it. stutters. 😂
+<p align="left">
+i type in full stop (using dots), im oftentimes never been so serious but if i offend you its most likely not my intention, im only ever trying to make people laugh. but sometimes i go a little way too far (if i got too comfortable) just tell me WHERE (where are you going). to stop! uhmmm no. actually no. i have poor humors.
+<p align="left">
+________
+<p align="left">
+dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey supporter, fujoshi/fudanshi, if you fetishize queer people/femboys in any CAPACITY, if you're weird about yaoi/yuri, trollers gen go away bro, ragebaiters.
+<p align="left">
+________
+<p align="left">
+thin ices: frank haters???? NOONNOONONONO I HATE!! YOU FLICK OFF 
