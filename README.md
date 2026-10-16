@@ -57,4 +57,4 @@ dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey supporter, fujoshi/fudan
 <p align="left">
 ________
 <p align="left">
-thin ices: frank haters???? NOONNOONONONO I HATE!! YOU FLICK OFF 
+thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahaha. you're so funny. NOONNOONONONO I HATE!! YOU FLICK OFF I: GONNA. GO AWAY. THERES A DOOR. jaw clence. im gonna. fury. it
