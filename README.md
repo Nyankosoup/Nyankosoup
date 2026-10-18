@@ -53,7 +53,7 @@ i type in full stop (using dots), im oftentimes never been so serious but if i o
 <p align="left">
 ________
 <p align="left">
-dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey/vivzie supporter, fujoshi/fudanshi, if you fetishize queer people/femboys in any CAPACITY, if you're weird about yaoi/yuri, trollers gen go away bro, ragebaiters, boundaries-breaker (especially when its come to a sensitive/serious boundaries), TERFs/radfem, (still wip because im lazy)
+dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey/vivzie supporter, fujoshi/fudanshi, if you fetishize queer people/femboys in any CAPACITY, if you're weird about yaoi/yuri, trollers gen go away bro, ragebaiters, boundaries-breaker (especially when its come to a sensitive/serious boundaries), TERFs/radfem, Gabe Velez/Gamerduck, Coffee supporter (Old VA of spookh month Streber/Robert (Duck), old robert (Coffe) for p3rv behavior) (still wip because im lazy)
 <p align="left">
 ________
 <p align="left">
