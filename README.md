@@ -55,6 +55,8 @@ ________
 <p align="left">
 dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey/vivzie supporter, fujoshi/fudanshi, if you fetishize queer people/femboys in any CAPACITY, if you're weird about yaoi/yuri, trollers gen go away bro, ragebaiters, boundaries-breaker (especially when its come to a sensitive/serious boundaries), TERFs/radfem, Gabe Velez/Gamerduck, Coffee supporter (Old VA of spookh month Streber/Robert (Duck), old robert (Coffe) for p3rv behavior) (still wip because im lazy)
 <p align="left">
+i don’t give a single sht about hellaverse fans. it’s only when YOU make an owl demon (st*las) twink your pfp or get on twitter to defend a racist btch that i have a problem. also if you support vivzie’s actionsyou should be genuinely ashamed of yourself
+<p align="left">
 ________
 <p align="left">
 thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahaha. you're so funny. NOONNOONONONO I HATE!! YOU FLICK OFF I: GONNA. GO AWAY. THERES A DOOR. jaw clence. im gonna. fury. it /j /j /j. just int at your own risk. 
