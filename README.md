@@ -58,3 +58,11 @@ dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey supporter, fujoshi/fudan
 ________
 <p align="left">
 thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahaha. you're so funny. NOONNOONONONO I HATE!! YOU FLICK OFF I: GONNA. GO AWAY. THERES A DOOR. jaw clence. im gonna. fury. it /j /j /j. just int at your own risk. 
+
+<details>
+<summary> ${\textsf{\color{#785BA6} this guy is funny}}$ </summary>
+<p align="left">
+laughing yes im weird man im  😹😹😹😂😂😂😂✌️✌️✌️✌️✌️ /pos (dont harass em)
+<p align="left">
+<img width="530" height="162" alt="IMG_9334" src="https://github.com/user-attachments/assets/d8db0f0f-59ff-40a8-a025-7a15b6551063" />
+</details>
