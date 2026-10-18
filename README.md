@@ -47,7 +47,7 @@ short: Axel o Bunny , Asexual Femboy (do not s3xualize me or anyting bad like th
 <p align="left">
 ________
 <p align="left">
-byi: i’m short-tempered, but it depends on my mood. idfk, just be really careful with it if you interact with me. i’ll casually warn you if you irritate me and that’s okay! keep yapping. i have poor social skills, but i’ll try to interact with you. i’m sensitive ash, a people-pleaser. and i have BPD so i struggle with maintaining relationships, emotional instability, and stuff like that. im blunt abt anything else i avoid conflict. i get jealous easily. just,  my. my. ego. ca. cant. h. handle. i. it. stutters. 😂
+byi: i’m short-tempered, but it depends on my mood. idfk, just be really careful with it if you interact with me. i’ll casually warn you if you irritate me and that’s okay! keep yapping. i have poor social skills, but i’ll try to interact with you. i’m sensitive ash, a people-pleaser. and i have BPD so i struggle with maintaining relationships, emotional instability, and stuff like that. im blunt abt anything else i avoid conflict. i get jealous easily. just,  my. my. ego. ca. cant. h. handle. i. it. stutters. 😂 i struggle with people's tone.
 <p align="left">
 i type in full stop (using dots), im oftentimes never been so serious but if i offend you its most likely not my intention, im only ever trying to make people laugh. but sometimes i go a little way too far (if i got too comfortable) just tell me WHERE (where are you going). to stop! uhmmm no. actually no. i have poor humors. no get out
 <p align="left">
