@@ -49,15 +49,19 @@ ________
 <p align="left">
 byi: i’m short-tempered, but it depends on my mood. idfk, just be really careful with it if you interact with me. i’ll casually warn you if you irritate me and that’s okay! keep yapping. i have poor social skills, but i’ll try to interact with you. i’m sensitive ash, a people-pleaser. and i have BPD so i struggle with maintaining relationships, emotional instability, and stuff like that. im blunt abt anything else i avoid conflict. i get jealous easily. just,  my. my. ego. ca. cant. h. handle. i. it. stutters. 😂
 <p align="left">
-i type in full stop (using dots), im oftentimes never been so serious but if i offend you its most likely not my intention, im only ever trying to make people laugh. but sometimes i go a little way too far (if i got too comfortable) just tell me WHERE (where are you going). to stop! uhmmm no. actually no. i have poor humors. no get out
+i type in full stop (using dots), im oftentimes never been so serious but if i offend you its most likely not my intention, im only ever trying to make people laugh. but sometimes i go a little way too far (if i got too comfortable) just tell me WHERE (where are you going). to stop! uhmmm no. actually no. i have poor humors. no get out, also i can be impatient and struggle with empathy at times. i can also be annoying though, that may just be my personality (only if i get very comfortable with you).
 <p align="left">
 ________
 <p align="left">
-dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey supporter, fujoshi/fudanshi, if you fetishize queer people/femboys in any CAPACITY, if you're weird about yaoi/yuri, trollers gen go away bro, ragebaiters.
+dni: basic Dni criteria, qwel/trump/maga/ice/lanadelrey supporter, fujoshi/fudanshi, if you fetishize queer people/femboys in any CAPACITY, if you're weird about yaoi/yuri, trollers gen go away bro, ragebaiters, boundary-breakers (especially when it come to a sensitive boundaries), if you have doubles dni (fictkin o yume) /pos, terf, romanticizing stalkers or people like that
 <p align="left">
 ________
 <p align="left">
 thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahaha. you're so funny. NOONNOONONONO I HATE!! YOU FLICK OFF I: GONNA. GO AWAY. THERES A DOOR. jaw clence. im gonna. fury. it /j /j /j. just int at your own risk. 
+<p align="left">
+________
+<p align="left">
+boundaries/personal triggers: uh wip. im still thinking abt it. dont mention about belts—even worser if you threaten me with that even if it was playful. i despise you.), Highly private intimacy that you been on with your gf/bf/idk mates just. dont please :/ (ill give you a warning if you don't know and its ok :)! just becareful next time /gen.)
 
 <details>
 <summary> ${\textsf{\color{#785BA6} this guy is funny}}$ </summary>
