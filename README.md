@@ -59,6 +59,10 @@ i don’t give a single sht about hellaverse fans. it’s only when YOU make an 
 <p align="left">
 ________
 <p align="left">
+also i dont mind if a 14- interact with me just don't be weird
+<p align="left">
+________
+<p align="left">
 thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahaha. you're so funny. NOONNOONONONO I HATE!! YOU FLICK OFF I: GONNA. GO AWAY. THERES A DOOR. jaw clence. im gonna. fury. it /j /j /j. just int at your own risk. 
 <p align="left">
 ________
