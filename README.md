@@ -1,7 +1,7 @@
 
 
 <p align="center">
-remaking this! please be patient! jumps.
+remaking this! please be patient! .#ineedfranksomuchsomeonefuckinghelpme
 
 <p align="center">
 $\color{46245F}\text{"　　The btch was strong, the kids was gone　   "}$
