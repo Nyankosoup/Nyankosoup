@@ -28,7 +28,7 @@ I’m sometimes/mostly offtab, but cuddles are VERY, VERY <b>ALLOWEDDDD</b> (com
 <p align="left">
 ________
 <p align="left">
-don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do not. sneeze on me, sent fried req unless we have interacted be4 (Banters), accidental, and uhhm,, uhm. yeah. also. hi. <b>semi-verbal</b>, I’m a bit of an ambivert, but I can definitely be really awkward in social settings, depending on my mood. I might seem okay at first, but if I get a little too quiet, my social battery starts draining really fast. Sighhh… then I just end up standing thereoverthinking everything! ok.
+don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do not. sent fried req unless we have interacted be4. hi. <b>semi-verbal</b>, I’m a bit of an ambivert, but I can definitely be really awkward in social settings, depending on my mood. I might seem okay at first, but if I get a little too quiet, my social battery starts draining really fast. Sighhh… then I just end up standing thereoverthinking everything! ok.
 <p align="left">
 ________
 <p align="left">
