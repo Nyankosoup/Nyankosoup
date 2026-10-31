@@ -66,5 +66,7 @@ ________
 thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahaha. you're so funny. NOONNOONONONO I HATE!! YOU FLICK OFF I: GONNA. GO AWAY. THERES A DOOR. jaw clence. im gonna. fury. it /j /j /j. just int at your own risk. 
 <p align="left">
 ________
-<p align="left">
+</details>
 
+<p align="center">
+i thought the contributer dots thingy color is a gay bear flag. positively. 🥺
