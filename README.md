@@ -68,5 +68,3 @@ thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahah
 ________
 </details>
 
-<p align="center">
-i thought the contributer dots thingy color is a gay bear flag. positively. 🥺
