@@ -68,3 +68,5 @@ thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahah
 ________
 </details>
 
+<p align="center">
+<img width="735" height="481" alt="IMG_0854" src="https://github.com/user-attachments/assets/92727322-15c1-4c10-a517-7938f2668535" />
