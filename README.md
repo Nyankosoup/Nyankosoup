@@ -32,7 +32,10 @@ don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do no
 <p align="left">
 ________
 <p align="left">
-Anywho if you see me as “i sign people straws/lendmeyourstrawiwillsignit” pony and I’m STARING at you. that probably means I was signing your straw, but stares <b>doesn't always</b> mean I was signing your strawpage. ok.??.?? Okay. GIVE ME YOUR STRAW. LIKE. RIGHT HOW. ILL SIGN IT, PLES,please speed i need this. my signingstrawpage instcit is kinda homels,  (25 people..) im a burgable. <img width="20" height="20" alt="IMG_8503" src="https://github.com/user-attachments/assets/f1ef9d97-8dcf-46c4-97be-79c08b1b1b2e" />
+im too shy to cuddle people first or just STARE at them. IM SORRY IF YOU GLANCE AT ME AND IM THERE JUST SITTING AWKWARDLY THER IM SO SO SORRY IM TOO SHY ☹️☹️☹️☹️IM NOT IGNORING YIU TH
+________
+<p align="left">
+this is me <img width="20" height="20" alt="IMG_8503" src="https://github.com/user-attachments/assets/f1ef9d97-8dcf-46c4-97be-79c08b1b1b2e" />
 <p align="left">
 ________
 <p align="left">
@@ -72,11 +75,3 @@ ________
 
 <p align="center">
 <img width="735" height="481" alt="IMG_0854" src="https://github.com/user-attachments/assets/92727322-15c1-4c10-a517-7938f2668535" />
-
-
-<details>
-      <summary> ${\textsf{\color{#785BA6} ok❤️}}$ </summary>    
-
-https://github.com/user-attachments/assets/faf5fd43-f664-4581-b054-d77a0264ef90
-
-</details>
