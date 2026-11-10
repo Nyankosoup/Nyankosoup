@@ -35,7 +35,7 @@ ________
 im too shy to cuddle people first or just STARE at them. IM SORRY IF YOU GLANCE AT ME AND IM THERE JUST SITTING AWKWARDLY THER IM SO SO SORRY IM TOO SHY ☹️☹️☹️☹️IM NOT IGNORING YIU TH
 ________
 <p align="left">
-this is me <img width="20" height="20" alt="IMG_8503" src="https://github.com/user-attachments/assets/f1ef9d97-8dcf-46c4-97be-79c08b1b1b2e" />
+this is <img width="20" height="20" alt="IMG_8503" src="https://github.com/user-attachments/assets/f1ef9d97-8dcf-46c4-97be-79c08b1b1b2e" />
 <p align="left">
 ________
 <p align="left">
@@ -70,8 +70,6 @@ thin ices: frank haters???? ahahaha. are you actually kidding about this. ahahah
 <p align="left">
 ________
 </details>
-
-
 
 <p align="center">
 <img width="735" height="481" alt="IMG_0854" src="https://github.com/user-attachments/assets/92727322-15c1-4c10-a517-7938f2668535" />
