@@ -20,7 +20,7 @@ ${\textsf{\color{#785BA6}𓏼   Frᥲᥒk'᥉   }}$ ㅤㅤ ${\textsf{\color{#462
 <p align="center">
 info in buncaks ! <img width="20" height="20" alt="IMG_3775" src="https://files.catbox.moe/gacbu8.gif" />
 
-![](https://komarev.com/ghpvc/?username=Nyankosoup&label=Regulardude%20&base=100&color=785BA6&style=flat)
+![](https://komarev.com/ghpvc/?username=Nyankosoup&label=Poochan%20&base=100&color=785BA6&style=flat)
 
 <details>
       <summary> ${\textsf{\color{#785BA6} pony town}}$ </summary>
