@@ -67,4 +67,6 @@ ________
 </details>
 
 <p align="center">
-<img width="735" height="481" alt="IMG_0854" src="https://github.com/user-attachments/assets/92727322-15c1-4c10-a517-7938f2668535" />
+<img width="273" height="320" alt="60EDEBAB-960D-4E9E-B181-AC695A6D35DF" src="https://github.com/user-attachments/assets/892d7fce-0d17-4279-ab20-6a72196f18a9" /> pokes
+
+
