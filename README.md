@@ -67,7 +67,8 @@ ________
 </details>
 
 <p align="center">
-oh poop! no! poop!! <img width="1200" height="900" alt="IMG_1416" src="https://github.com/user-attachments/assets/4fe7fb68-2247-43ba-a64b-11c04e938853" />
+oh poop! yipyip!!! b <img width="1200" height="875" alt="IMG_1652" src="https://github.com/user-attachments/assets/64fa0d08-8301-4810-8c87-d9d8b394f0ca" />
+
 
 
 
