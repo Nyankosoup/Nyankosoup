@@ -67,6 +67,7 @@ ________
 </details>
 
 <p align="center">
-<img width="273" height="320" alt="60EDEBAB-960D-4E9E-B181-AC695A6D35DF" src="https://github.com/user-attachments/assets/892d7fce-0d17-4279-ab20-6a72196f18a9" /> pokes
+oh poop! no! poop!! <img width="1200" height="900" alt="IMG_1416" src="https://github.com/user-attachments/assets/4fe7fb68-2247-43ba-a64b-11c04e938853" />
+
 
 
