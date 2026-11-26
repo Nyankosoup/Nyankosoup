@@ -7,6 +7,6 @@ $\color{DDDDDD}\text{♡　 　 partner in crimes (ransomribs)　　  }$
 
 
 
-  <p align="center"> <img src=https://komarev.com/ghpvc/?username=Nyankosoup&color=DDDDDD&style=flat-square&label=kidnapped>
+  <p align="center"> <img src=https://komarev.com/ghpvc/?username=Nyankosoup&color=DDDDDD&style=flat-square&label=kidnapped+bnuy>
 
 
