@@ -9,4 +9,22 @@ $\color{DDDDDD}\text{♡　 　 partner in crimes (ransomribs)　　  }$
 
   <p align="center"> <img src=https://komarev.com/ghpvc/?username=Nyankosoup&color=DDDDDD&style=flat-square&label=kidnapped+bnuy>
 
+  <details>
+      <summary> ${\textsf{\color{#DDDDDD} pst}}$ </summary>
+I’m sometimes/mostly offtab, but cuddles are VERY, VERY <b>ALLOWEDDDD</b> (comfort cuddles!!). Go ahead!! You can still cuddle me when I’m on “IWEC,” “IWVEC,” “IWC,”,  “DNIUParty/DNIUF/DNIUC,” or anything similar to DNI. it’s okay . Just DO NOT interact if I’m on one of my “DNIs” statuses. Alsouhhhhh., I <b>BITE</b>. interact with caution/EXTREME caution, especially when I’m not in the mood. No no ya dek. uh whatever just dont be weird. uhm. dont h*mp me strangeri will hide you :/. ALO MY WIFI IS BAD. BAD. LIKE BAD. BAD. BA.D
+<p align="left">
+________
+<p align="left">
+don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do not. sent fried req unless we have interacted be4. hi. <b>semi-verbal</b>, I’m a bit of an ambivert, but I can definitely be really awkward in social settings, depending on my mood. I might seem okay at first, but if I get a little too quiet, my social battery starts draining really fast. Sighhh… then I just end up standing thereoverthinking everything! ok.
+<p align="left">
+________
+<p align="left">
+im too shy to cuddle people first or just STARE at them. IM SORRY IF YOU GLANCE AT ME AND IM THERE JUST SITTING AWKWARDLY THER IM SO SO SORRY IM TOO SHY ☹️☹️☹️☹️IM NOT IGNORING YIU TH. MY WIFI IS BAD. <img width="20" height="20" alt="IMG_8503" src="https://github.com/user-attachments/assets/f1ef9d97-8dcf-46c4-97be-79c08b1b1b2e" />
+<p align="left">
+________
+<p align="left">
+im usually spotted under bakery (cuddling w bear heh. haha ahahahahahahah HAH hi bear!), the pumpkin patch/farm (spooky month area), docks and library, in UT/DR fandom.. im just everywhere whateverbro bbbabababaa blablabakab also. uhm. like. nevermind. this is me byw haha. im. sleep. isslslsls. MY WIFI IS BAD.
+aaban<img width="567" height="567" alt="IMG_9126" src="https://github.com/user-attachments/assets/2de48486-0934-4ca8-a9c1-6f2b1b14d3a4" />
+</details>
+
 
