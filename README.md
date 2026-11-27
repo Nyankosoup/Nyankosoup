@@ -22,7 +22,7 @@ don't sent invite unless i wanted to rp/hangout/from freind. <b>do NOT</b> do no
 ________
 <p align="left">
 im usually spotted under bakery (cuddling w bear heh. haha ahahahahahahah HAH hi bear!), the pumpkin patch/farm (spooky month area), docks and library, in UT/DR fandom.. im just. 
-everywhere what so ever. im out of here <img width="567" height="567" alt="IMG_9126" src="https://github.com/user-attachments/assets/2de48486-0934-4ca8-a9c1-6f2b1b14d3a4" />
+everywhere what so ever. im out of here 
 </details>
 
 
