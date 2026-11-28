@@ -29,3 +29,10 @@ everywhere what so ever. im out of here
 
 
 
+<p align="center"
+  
+$${\color{#C4C4C4}{ "Even the Devil Butcher needs a getaway driver."　　"and a Sweet tooth meets sharp teeth."　}}$$
+
+</p>
+
+<p align="left"></p>
