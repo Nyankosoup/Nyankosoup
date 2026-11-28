@@ -29,7 +29,3 @@ everywhere what so ever. im out of here
 
 
 
-
-
-https://github.com/user-attachments/assets/9e228b09-b960-4030-b20f-db7ec3d043e9
-
